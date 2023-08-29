@@ -1,1 +1,1 @@
-New is good
+New world
